@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+Hit me up at Discord: arduwa#1835
 <!--
 **kubeeek/kubeeek** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
